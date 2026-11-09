@@ -33,7 +33,7 @@ multifandom <img width="20" height="20" alt="tumblr_86ab758692a4d3f37b1c4b263e1a
 
 note: very asocial, i tend to be realllyyy awkward so please be patient mkay. no dni justt dont be weird. yumeshippers are on slight thin ice but fti :p
 
-roblox expy. steven (timefcuk), man behind the tree, wallter fictkin. doubles can int hi guys!!!!!!!!!!!!!!!!!!!!!!!!!!!
+roblox expy. steven (timefcuk), man behind the tree fictkin. wallter fullkin. doubles can freely int ionreallycare
 
 <img width="150" height="150" alt="tumblr_88819d39372d64274d5e8f5f795f2b87_c2025cd8_250" src="https://github.com/user-attachments/assets/5e78b14e-eca6-4147-aa8b-819541fc1a26" />
 </details>
