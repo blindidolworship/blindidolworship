@@ -1,4 +1,4 @@
-<div align="center">
+ <div align="center">
 
 <img width="2048" height="105" alt="tumblr_9c78098092e4580f7de52182cba96779_77a0b120_2048" src="https://github.com/user-attachments/assets/47a0aefe-9994-4091-bcf9-1e4135cf9956" />
 
@@ -31,7 +31,7 @@ click on text with arrows
 multifandom <img width="20" height="20" alt="tumblr_86ab758692a4d3f37b1c4b263e1a926f_100a9fdc_75" src="https://github.com/user-attachments/assets/bc922e64-6e69-4f37-8418-4d9a9cdf6c7a" />
  IDN/ENG: OK!
 
-note: very asocial, i tend to be realllyyy awkward so please be patient mkay. no dni justt dont be weird. yumeshippers are on slight thin ice but fti :p
+note: very asocial, i tend to be realllyyy awkward so please be patient mkay. yumeshippers are on slight thin ice but fti 
 
 roblox expy. steven (timefcuk), man behind the tree fictkin. wallter fullkin. doubles can freely int ionreallycare
 
@@ -46,9 +46,9 @@ please priotize whispering to interact since im completely offtab most of the ti
 
 im okay with c+h or covering #lalalala
 
-if i make you uncomfortable please state it outright and ill stop immediately :[
+if i make you uncomfortable please state it outright and ill stop immediately
 
-i do not have a prominent spot as i keep changing locations!! do int though
+i do not have a prominent spot as i keep changing locations!!!!!!
 
 <img width="400" height="132" alt="tumblr_1b85ef879b31339e7d880e0e39aa3f33_c42e9c9b_400" src="https://github.com/user-attachments/assets/0c0c4f38-6c42-4f3e-9e85-0193e6ad660b" />
 </details>
