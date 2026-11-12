@@ -50,6 +50,17 @@ if i make you uncomfortable please state it outright and ill stop immediately
 
 i do not have a prominent spot as i keep changing locations!!!!!!
 
++-----+
+
+nominations
+
+<div align="left">
+
+
+WallterBrickstone!!!!!!
+- [@THE-TEMPIST](https://github.com/THE-TEMPIST)
+</div>
+
 <img width="400" height="132" alt="tumblr_1b85ef879b31339e7d880e0e39aa3f33_c42e9c9b_400" src="https://github.com/user-attachments/assets/0c0c4f38-6c42-4f3e-9e85-0193e6ad660b" />
 </details>
 
