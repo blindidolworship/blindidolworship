@@ -53,10 +53,19 @@ i do not have a prominent spot as i keep changing locations!!!!!!
 <details>
   <summary><img width="20" height="20" alt="tumblr_5d7ad6f90e1cb38c9f69e02ee04c8497_24692b31_75" src="https://github.com/user-attachments/assets/dc4a0feb-c714-4a81-ab3c-c1f3355de130" />
 nominations</summary>
-
-<a href="https://github.com/THE-TEMPIST">
-  <img width="422" height="21" src="https://github.com/user-attachments/assets/c9d4fa52-709b-48a5-bb26-e6fa46bdcae9" alt="Alt text">
+ 
+- <a href="https://github.com/THE-TEMPIST">
+<img width="457" height="20" alt="POIJHGFDSA" src="https://github.com/user-attachments/assets/574075d3-53f8-473f-8481-2547023101b5" />
 </a>
+
+- <a href="https://github.com/Ponytowns-rewards">
+<img width="385" height="20" alt="CaptureMN" src="https://github.com/user-attachments/assets/be4c44c0-2e42-436c-9166-eba306369ffb" />
+</a>
+
+ - <a href="https://github.com/pt-everypony">
+<img width="464" height="24" alt="Capturesque" src="https://github.com/user-attachments/assets/4da029ac-b2eb-4a52-b00a-33942f3d4700" />
+</a>
+
 </details>
 
 <img width="400" height="132" alt="tumblr_1b85ef879b31339e7d880e0e39aa3f33_c42e9c9b_400" src="https://github.com/user-attachments/assets/0c0c4f38-6c42-4f3e-9e85-0193e6ad660b" />
